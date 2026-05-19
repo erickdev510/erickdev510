@@ -35,5 +35,5 @@ ________________________________________________________________________________
 
 💡 CURIOSIDADE:
 
-Eu sou corinthiano, adoro jogar futebol, meu passa tempo favorito é jogar videogame e meu jogo favorito é FIFA, também acredito que tudo é no tempo de Deus.
+Eu sou corinthiano, adoro jogar futebol, meu passa tempo favorito é jogar videogame, gosto bastante de jogos em modo historia , como god of war , the last of us e meu jogo favorito é FIFA, também acredito que tudo é no tempo de Deus.
 
