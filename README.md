@@ -1,4 +1,4 @@
-                                                    Ola eu sou o Erick
+                                                Ola eu sou o Erick
 
 
 _____________________________________________________________________________________________________________________
@@ -17,7 +17,8 @@ ________________________________________________________________________________
 
 🌐 _CONTATOS_
 
-E-MAIL: barrossobralerick@gmail.com erick.barros062009@gmail.com
+E-MAIL: 
+barrossobralerick@gmail.com erick.barros062009@gmail.com
 
 
 
