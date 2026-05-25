@@ -25,7 +25,7 @@ barrossobralerick@gmail.com erick.barros062009@gmail.com
 ___________________________________________________________________________________________________________
 
 
-✍️FRASE QUE INSIPIRA :
+✍️**FRASE QUE INSIPIRA** :
 
 “O progresso dos outros, não é o seu atraso“
 
