@@ -1,4 +1,4 @@
-                                                Ola eu sou o Erick
+                                                 # Ola eu sou o Erick
 
 
 _____________________________________________________________________________________________________________________
@@ -39,5 +39,5 @@ ________________________________________________________________________________
 Eu sou corinthiano, adoro jogar futebol, meu passa tempo favorito é jogar videogame, gosto bastante de jogos em modo historia , como god of war , the last of us e meu jogo favorito é FIFA, também acredito que tudo é no tempo de Deus.
 
 
-# GITHUB 
+
 
