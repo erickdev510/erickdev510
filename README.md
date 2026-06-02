@@ -1,6 +1,6 @@
 # OLA EU SOU O ERICK 
 
-
+![imagem]()
                                       
 👨‍🏫 ***SOBRE MIM***
 
