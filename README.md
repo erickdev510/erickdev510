@@ -1,6 +1,6 @@
 # OLA EU SOU O ERICK 
 
-![imagem]()
+![imagem](https://github.com/erickdev510/erickdev510/blob/main/TIM%C3%83O1.png)
                                       
 👨‍🏫 ***SOBRE MIM***
 
